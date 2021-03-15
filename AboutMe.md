@@ -13,6 +13,9 @@
 📞 Telefone - (16) 98848-2652
 
 ✉ E-mail - aleksbalduino@gmail.com
+
+📱 Linkedin - https://www.linkedin.com/in/aleksander-balduino/
+
 ____________________________________________________________________________________________________
 
 - Aleksander Balduino
