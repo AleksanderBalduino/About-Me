@@ -19,3 +19,19 @@
 ____________________________________________________________________________________________________
 
 - Aleksander Balduino
+
+🎓 Majoring Computer Engineering at Universidade de Ribeirão Preto (UNAERP).
+
+💻 IT intern at Universidade de Ribeirão Preto (2018 - 2021).
+
+💼 Thinking of persuing a Developer Front-end career.
+
+📖 Actively in search of learning new skills and adquiring new knowledge.
+
+🎲 My hobbies are: Watching series, movies, playing games, playing the guitar.
+
+📞 Tellphone +55(16) 98848-2652
+
+✉ E-mail - aleksbalduino@gmail.com
+
+📱 Linkedin - https://www.linkedin.com/in/aleksander-balduino/
