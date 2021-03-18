@@ -26,7 +26,7 @@ ________________________________________________________________________________
 
 💼 Thinking of persuing a Developer Front-end career.
 
-📖 Actively in search of learning new skills and adquiring new knowledge.
+📖 Actively in search of learning new skills and adquiring new knowledges.
 
 🎲 My hobbies are: Watching series, movies, playing games, playing the guitar.
 
